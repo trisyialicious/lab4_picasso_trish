@@ -2,7 +2,7 @@
 
 ଘ(✿˵•́ ᴗ •̀˵)
 
-Hi, my name is Miza Batrisyia. My friends call me Trish. I wanna be rich. 
+Hi, my name is Trish. I wanna be rich. 
 
 ♡( •ॢ◡-ॢ)✧˖° ♡
 
